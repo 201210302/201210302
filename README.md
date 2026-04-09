@@ -1,6 +1,6 @@
 # Hyeju  Kim
 
-Email: hyeju724@naver.com
+Email: 
 ---
 
 ## Profile
